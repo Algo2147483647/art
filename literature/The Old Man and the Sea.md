@@ -1,12 +1,6 @@
-The Old Man
-
-and the Sea
-
-
+# The Old Man and the Sea
 
 Ernest Hemingway
-
-
 
 
 
